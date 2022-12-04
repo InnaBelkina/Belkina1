@@ -124,3 +124,7 @@ b. С помощью метки-идентификатора.
 ***
 
 Информация взята с [сайта](https://gist.github.com/Jekins/2bf2d0638163f1294637) 
+ ***
+
+![Спасибо за внимание](https://linedot.ru/wp-content/uploads/2019/12/spasibo-za-vnimanie1.jpg)
+
