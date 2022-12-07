@@ -146,3 +146,4 @@ b. С помощью метки-идентификатора.
 
 ![Спасибо за внимание](https://linedot.ru/wp-content/uploads/2019/12/spasibo-za-vnimanie1.jpg)
 
+![Всем добра](https://avatars.mds.yandex.net/get-images-cbir/7772813/qyka5BNK29pJ34nlvxuAzg8328/ocr)
